@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @reaby0
+- 👀 I’m interested in calibrating sockets for comfort in medically underserved regions of the world.
+- 🌱 I’m currently learning to take a vacation
+- 💞️ I’m looking to collaborate on simpler trilinear image mapping
+- 📫 How to reach me is to ask the internet if they have seen me around.
